@@ -1,4 +1,4 @@
-#  
+#  escape tsunami for brainrots Script ultimate offers the most advanced escape tsunami for brainrots Script, with auto-heal and no clip. Perfect for
 
 
 
